@@ -9,4 +9,4 @@ For updates, please check back here or contact us if you have any questions.
 ## Contact
 
 For any inquiries, please reach out to:  
-[mr.cyxyz@qq.com]
+[sdu_cyx@mail.sdu.edu.cn]
